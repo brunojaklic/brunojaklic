@@ -28,7 +28,7 @@ Let's Connect!
 
 📫 Email: bruno.jaklic.2005@gmail.com
 
-💼 LinkedIn: https://www.linkedin.com/in/bruno-jaklić-4a548631a/
+💼 LinkedIn: https://www.linkedin.com/in/brunojaklic/
 
 🌍 GitHub: https://github.com/brunojaklic
 
